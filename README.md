@@ -3,7 +3,7 @@ Me chamo Juliana Garcia, sou formada em Geoprocessamento pelo Instituto Federal 
 
 
 
-Seja bem-vindo ao meu perfil!
+Seja bem-vindo(a) ao meu perfil!
 
 #### Redes 💻
 <div>
